@@ -1,0 +1,1 @@
+Gesammelte Ressourcen für PDB 22
